@@ -7,10 +7,11 @@ Seth MacFarlane was born October 26, 1973 in Kent, Connecticut. He is a distant 
 
 In high school Seth began making short films using his parents' 8mm camera. He then went on to the Rhode Island School of Design (RISD) where he studied film, video and animation. While at RISD, Seth's had a classmate named Patrick Henry. At some point Patrick introduced Seth to his brother Mike Henry, an aspiring stand-up comedian/actor who would later collaborate on several MacFarlane projects. Mike Henry would later voice the characters Cleveland Brown, Herbert, Consuela and Bruce. In 2009 Mike and Seth co-created "The Cleveland Show" which aired 88 episodes over four seasons through 2013. [``Source``](https://www.celebritynetworth.com/richest-celebrities/richest-comedians/seth-macfarlane-net-worth/)
 
+This is all about Seth MacFarlane
 
 ## Hanna-Barbera
 
-During his senior year at RISD Seth created a film thesis called "The Life of Larry." His professor submitted the film to executives at Hanna-Barbera. Those executives were impressed and instantly offered Seth a job. Seth worked on a number of Hanna-Barbera projects. In 1996 he created an updated version of The Life of Larry called "Larry & Steve" which featured a lovable/dumb middle-aged character named Larry and his loyal intelligent dog, Steve. 
+During his senior year at RISD Seth created a film thesis called "The Life of Larry." His professor submitted the film to executives at Hanna-Barbera. Those executives were impressed and instantly offered Seth a job. Seth worked on a number of Hanna-Barbera projects. In 1996 he created an updated version of The Life of Larry called "Larry & Steve" which featured a lovable/dumb middle-aged character named Larry and his loyal intelligent dog, Steve.
 
 ## Family Guy
 
@@ -40,7 +41,7 @@ He has released five musical albums and performs regularly as a big band act.
 
 ## Fun Facts
 
-  
+
 * **Seth MacFarlane's been drawing since childhood** [``Source``](https://www.wonderwall.com/celebrity/profiles/surprising-things-you-might-not-know-about-seth-macfarlane-3010303.gallery?photoId=1013678)
 >>Seth MacFarlane has been passionate about animation since the tender age of 2, when he started tracing characters like Fred Flintstone and Woody Woodpecker.
 
@@ -50,7 +51,7 @@ He has released five musical albums and performs regularly as a big band act.
 * **He made up an early version of "Family Guy" in college** [``Source``](https://www.wonderwall.com/celebrity/profiles/surprising-things-you-might-not-know-about-seth-macfarlane-3010303.gallery?photoId=1013685)
 >> While studying film, video and animation at the Rhode Island School of Design (where he earned a bachelor of fine arts degree), Seth MacFarlane came up with an idea for a project about a middle-aged man named Larry who had an intellectually superior dog named Steve. For his senior thesis, he turned in an animated video called "The Life of Larry"
 
-* **Seth MacFarlane began his animation career at Hanna-Barbera.** [``Source``](https://www.wonderwall.com/celebrity/profiles/surprising-things-you-might-not-know-about-seth-macfarlane-3010303.gallery?photoId=1013685) 
+* **Seth MacFarlane began his animation career at Hanna-Barbera.** [``Source``](https://www.wonderwall.com/celebrity/profiles/surprising-things-you-might-not-know-about-seth-macfarlane-3010303.gallery?photoId=1013685)
 >> ``The Life of Larry`` that impressed his professor so much, he turned it into animation studio Hanna-Barbera Cartoons, which hired Seth on the spot. Larry and Steve would later become the inspiration for Peter and Brian Griffin on "Family Guy."
 
 * **He is an  American Screenwriter, Film director, Television Director,  Composer, Animator, Television producer, Actor, Voice Actor, Comedian and Singer**[``Source``](https://www.celebritynetworth.com/richest-celebrities/richest-comedians/seth-macfarlane-net-worth/)
